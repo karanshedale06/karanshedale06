@@ -1,4 +1,4 @@
-## Hi karanshedale06 👋
+## karanshedale06
 
 
 # 👋 Hi there! I'm Karankumar Shedale  
